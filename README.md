@@ -1,1 +1,1 @@
-# jubilant-googles
+# jubilant-goggles
